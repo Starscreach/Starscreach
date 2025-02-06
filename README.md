@@ -1,7 +1,7 @@
 
 ROBERT LEE THORPE
 Strategic AI Innovation & Operations Leadership
-Email: Exquisiterequisite@proton.me | Phone: (904) 250-6523
+Email: Exquisiteprequisite@proton.me | Phone: (904) 250-6523
 
 EXECUTIVE PROFILE
 Visionary leader at the intersection of artificial intelligence and operational excellence, driving digital transformation across multiple sectors. Demonstrated expertise in synthesizing traditional business acumen with cutting-edge AI solutions to revolutionize organizational efficiency and market competitiveness. Known for architecting scalable, AI-driven solutions that deliver measurable business impact while maintaining human-centric approaches.
