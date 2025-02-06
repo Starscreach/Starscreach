@@ -1,5 +1,5 @@
 
-ROBERT LEE THORPE
+Robert Lee Thorpe
 Strategic AI Innovation & Operations Leadership
 Email: Exquisiteprequisite@proton.me | Phone: (904) 250-6523
 
